@@ -1,1 +1,1 @@
-# what246-s-blooket-hacks
+How to use the blooket hacks all you want to do is copy the code then make a new book mark then name the bookmark anything you want then for the url paste in the code and save the book mark now just click the book mark on blooket (IF YOU GET BANNED ITS NOT MY FAULT) 
